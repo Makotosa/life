@@ -1,0 +1,1 @@
+Этот проэкт для того чтобы я пыталась хоть что-то понять. C:/Users/Anwender/Desktop/POLINA/python/git hub
